@@ -1,1 +1,0 @@
-# temlesyoner.github.io
